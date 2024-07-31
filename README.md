@@ -15,7 +15,7 @@
   - **LinkedIn:** https://www.linkedin.com/in/louisa
 - 😄Pronouns: she/her
 - ⚡ Fun fact: I have an avid passion for puzzle games and sci-fi movies!
-  ![Uploading image.png…]()
+  
 
 
 
